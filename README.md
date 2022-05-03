@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Korosha
+- 👀 I’m interested in developing video games
+- 🌱 I’m currently learning cybersecurity and git
+- 📫 How to reach me: don't.  Not yet
